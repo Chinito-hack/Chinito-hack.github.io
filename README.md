@@ -11,7 +11,6 @@
 # QUINTO PASO, EDITAN LAS PARTES QUE MOSTRARE AQUI XD
 ![2 ](https://github.com/user-attachments/assets/71c2d46a-64a6-4dfc-9bcb-33bb2ede3a0e)
 # AQUI DONDE DICE <title>pa ti pe </title>, SOLO EDITAN "PA TI PE" LE PONEN CUALQUIER COSA XD, YA SEA EL NOMBRE DE SUS BANDIDAS O LO QUE SEA XDDD
-![image](https://github.com/user-attachments/assets/b5b53e00-a0e2-48cb-83e2-d475c91f6cf5)
 # SEGUIDAMENTE BAJAN Y SE ENCONTRARAN CON ESTO 
 ![3](https://github.com/user-attachments/assets/4c06c438-c34b-4283-9275-27f3dc669385)
 # AQUI LO QUE HARAN SOLO ES EDITAR ESTA PARTE 
